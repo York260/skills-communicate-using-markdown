@@ -1,2 +1,2 @@
-# 露比醬，HI~
-![露比醬網路圖片](https://s.yimg.com/ny/api/res/1.2/imXwILLg4jlNcyQath87uA--/YXBwaWQ9aGlnaGxhbmRlcjt3PTY0MDtoPTYzNQ--/https://s.yimg.com/os/creatr-uploaded-images/2025-05/085fc1b0-2ca3-11f0-b4ff-a4ab0caf664a)
+# 讓內心回到原點
+![心如止水](https://i1.sndcdn.com/artworks-000548115444-9s7pkq-t1080x1080.jpg)
